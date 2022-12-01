@@ -1,1 +1,1 @@
-# icsd18210.github.io
+stefanidisphotography.myartsonline.com
